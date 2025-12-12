@@ -9,7 +9,6 @@ Année d'optention : 2025
 Avez-vous déjà effectué une autre formation après le bac ? : Non
 Ville de résidence: Franconville (95130)
 Moyen de transport : voiture
-Mail lycée :
 Mail personnel :tounsi.yessine06@gmail.com
 Pourquoi avoir choisi le BTS-SIO d : C'est une opportunité qui m'a été offerte afin d'avoir un diplome bac +3.
 Travaillez-vous en dehors des cours : Entraineur de rugby
